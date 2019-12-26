@@ -1,1 +1,1 @@
-https://msg2fahd.github.io/tblog/
+https://msg2fahd.github.io/blogt/
